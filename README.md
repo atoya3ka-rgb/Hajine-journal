@@ -1,0 +1,1 @@
+# Hajine-journal
